@@ -34,7 +34,6 @@ I'm building my way toward **data and AI engineering applied to healthcare** —
 
 ### 📫 Contact
 
-[LinkedIn](www.linkedin.com/in/lucas-consoli-21659029b
-) · [Email](lucasnconsoli@gmail.com)
+[LinkedIn](www.linkedin.com/in/lucas-consoli-21659029b) · [Email](lucasnconsoli@gmail.com)
 
 🌍 Spanish · Catalan · English (B2)
